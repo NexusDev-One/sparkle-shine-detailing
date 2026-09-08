@@ -1,3 +1,5 @@
+<img width="1919" height="1079" alt="Screenshot 2026-09-08 232120" src="https://github.com/user-attachments/assets/528d195d-ff70-470a-9280-b12af3b9c768" />
+
 # Sparkle & Shine Detailing 🚗✨
 
 > **Luxury Mobile Automotive Detailing Experience for the Dallas–Fort Worth Metroplex.**  
